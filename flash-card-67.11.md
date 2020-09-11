@@ -1,0 +1,8 @@
+(67:11:1)	  fa-iʿ'tarafū	    Then they (will) confess	ﯷﯷﯷﯷﯷ
+(67:11:2)	  bidhanbihim	      their sins,
+(67:11:3)	  fasuḥ'qan	        so away with
+
+SAHIH INTERNATIONAL:
+And they will admit their sin, so [it is] alienation for the companions of the Blaze.
+YUSUF ALI:
+They will then confess their sins: but far will be (Forgiveness) from the Companions of the Blazing Fire!
