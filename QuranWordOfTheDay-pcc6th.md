@@ -1,3 +1,7 @@
+Quran Word Of The Day - pcc6th
+
+Learn one word from The Noble Quran a day
+
 Day 1 
 
 wāḥidatun	  single
