@@ -11,6 +11,7 @@ Walaqad khalaqna assamawatiwal-arda wama baynahuma fee sittatiayyamin wama massa
 And We did certainly create the heavens and earth and what is between them in six days, and there touched Us no weariness.
 
 https://quran.com/50/38
+
 https://corpus.quran.com/qurandictionary.jsp?q=stt#(50:38:8)
 
 Day 2
@@ -23,6 +24,7 @@ Ith arsalna ilayhimu ithnaynifakaththaboohuma faAAazzazna bithalithinfaqaloo inn
 
 
 https://quran.com/36/14
+
 https://corpus.quran.com/qurandictionary.jsp?q=vny#(36:14:4)
 
 
