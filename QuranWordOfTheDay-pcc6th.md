@@ -2,6 +2,19 @@ Quran Word Of The Day - pcc6th
 
 Learn one word from The Noble Quran a day
 
+Day 4
+
+thamāniya	(for) eight
+(28:27:12)
+
+Qala innee oreedu an onkihakaihda ibnatayya hatayni AAala anta/juranee thamaniya hijajin fa-in atmamta AAashranfamin AAindika wama oreedu an ashuqqa AAalayka satajiduneein shaa Allahu mina assaliheen
+
+He said, "Indeed, I wish to wed you one of these, my two daughters, on [the condition] that you serve me for eight years; but if you complete ten, it will be [as a favor] from you. And I do not wish to put you in difficulty. You will find me, if Allah wills, from among the righteous."
+
+https://quran.com/28/27
+
+https://corpus.quran.com/qurandictionary.jsp?q=vmn#(28:27:12)
+
 Day 3
 
 sittati   six	
