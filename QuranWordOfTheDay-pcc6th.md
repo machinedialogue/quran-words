@@ -2,6 +2,10 @@ Quran Word Of The Day - pcc6th
 
 Learn one word from The Noble Quran a day
 
+Day 5 
+
+(28:27:16) ʿashran	ten
+
 Day 4
 
 thamāniya	(for) eight
