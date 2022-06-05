@@ -2,6 +2,19 @@ Quran Word Of The Day - pcc6th
 
 Learn one word from The Noble Quran a day
 
+Day 6
+
+ir'ḥamhumā    - Have mercy on both of them  (The triliteral root rā ḥā mīm (ر ح م) occurs 339 time)
+
+... rabbi irhamhuma kama rabbayanee sagheera.
+
+... "My Lord, have mercy upon them as they brought me up [when I was] small."
+
+https://previous.quran.com/17/24
+
+https://corpus.quran.com/qurandictionary.jsp?q=rHm#(17:24:9)
+
+
 Day 5 
 
 (28:27:16) ʿashran	ten
