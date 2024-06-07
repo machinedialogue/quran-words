@@ -1,0 +1,11 @@
+(2:286:2)	  yukallifu	burden
+(2:286:6)	  wus'ʿahā	its capacity	
+(2:286:15)	tuākhidh'nā	take us to task	
+(2:286:17)	nasīnā		we forget
+(2:286:19)	akhṭanā		we err
+
+(2:286:22)	taḥmil		lay	
+(2:286:24)	iṣ'ran		a burden	
+
+(2:286:36)	ṭāqata		(the) strength	
+(2:286:39)	wa-uʿ'fu	And pardon	
