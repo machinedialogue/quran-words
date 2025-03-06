@@ -1,8 +1,10 @@
 Quran Word Of The Day - pcc6th
 
 Learn one word from The Noble Quran a day
+
 Day 7
 (2:255:6)		l-ḥayu				the Ever-Living 
+
 Day 6
 
 ir'ḥamhumā    - Have mercy on both of them  (The triliteral root rā ḥā mīm (ر ح م) occurs 339 time)
